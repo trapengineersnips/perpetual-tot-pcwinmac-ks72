@@ -1,4 +1,4 @@
-# 
+# أصلي perpetual trading bot امتدادات لـ Mac OS | متقدم perpetual trading bot امتدادات لـ PC Windows. مع تجميع متعدد DEX و تحليل الزخم — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
